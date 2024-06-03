@@ -6,7 +6,8 @@
 - 🌱 I’m currently learning everything 🤣
 - 🤔 I’m looking an opportunities after my graduation  
 - 📫 How to reach me: aboubaker.ibrahimhss@gmail.com
-- ⚡ Fun fact: I love to travel and play football 
+- ⚡ Fun fact: I love to travel and play football
+- linkdin profil : https://www.linkedin.com/in/aboubaker-ibrahim-hassan-67aa87172/
  
 
 
