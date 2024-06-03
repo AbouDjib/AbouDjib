@@ -4,7 +4,7 @@
 
 - 🔭 I’m currently working in Prompt engineering & IA generative
 - 🌱 I’m currently learning everything 🤣
-- 🤔 I’m looking a final year internship 
+- 🤔 I’m looking an opportunities after my graduation  
 - 📫 How to reach me: aboubaker.ibrahimhss@gmail.com
 - ⚡ Fun fact: I love to travel and play football 
  
